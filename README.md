@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LUVC860705HCLNLR02
+LUVC860705HCLNLR02
